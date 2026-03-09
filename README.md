@@ -1,1 +1,2 @@
-hejka misiu
+hejka misiu 
+co tam u was
